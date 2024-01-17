@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with everyone who wants to collab! 
 - 📫 How to reach me at here or email me at decodedwrld@gmail.com
 - 😄 Pronouns: none. 
-- ⚡ Fun fact: I know a couple celerbrities! 
+- ⚡ Fun fact: I'm pretty good at making half court shots in basketball!  
 
 <!---
 MrJlarimer/MrJlarimer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
